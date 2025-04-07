@@ -1,0 +1,2 @@
+# WhyChoosingaWalkinClinicIstheSmartestChoiceforYourHealthNeeds
+WhyChoosingaWalkinClinicIstheSmartestChoiceforYourHealthNeeds
